@@ -42,5 +42,5 @@
 
 >Хорошо рассуждать о добродетели - не значит еще быть добродетельным, а быть справедливым в мыслях - не значит еще быть справедливым на деле. Аристотель 
 ### А теперь к своему описанию я хотела бы загрузить свою фотографию:
-![](https://vk.com/away.php?to=https%3A%2F%2Flh3.googleusercontent.com%2F-P6ZnY_4i5uA%2FWmNpaaDrvzI%2FAAAAAAAABj4%2FVjiYCl44PnchkdGCTwxnZSansUJIQfvZQCL0BGAs%2Fw530-d-h530-n-rw%2FaI5cSLm3SXk.jpg&cc_key=)
+![](https://lh3.googleusercontent.com/-P6ZnY_4i5uA/WmNpaaDrvzI/AAAAAAAABkQ/SYz3gVltylIYTOds8C9euUkftFlfpqJ6QCJoC/w530-h530-n-rw/aI5cSLm3SXk.jpg)
 
