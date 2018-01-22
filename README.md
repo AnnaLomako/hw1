@@ -42,9 +42,9 @@
 
 >*Хорошо рассуждать о добродетели - не значит еще быть добродетельным, а быть справедливым в мыслях - не значит еще быть справедливым на деле*. Аристотель 
 ### Мои социальные сети:
-[vk](https://vk.com/llllllllllllllllllkl)
-[Telegram](https://t.me/AnnLomako)
-[Instagram](https://www.imstagram/com/lomannskaya/)
+-[vk](https://vk.com/llllllllllllllllllkl)
+-[Telegram](https://t.me/AnnLomako)
+-[Instagram](https://www.instagram/com/lomannskaya/)
 
 ## Большую часть своего времени я трачу на обучение и далее я бы хотела показать Вам своё расписание: 
 День недели|Предмет|Время урока|
