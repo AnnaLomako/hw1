@@ -44,7 +44,7 @@
 ### Мои социальные сети:
 * [vk](https://vk.com/llllllllllllllllllkl)
 * [Telegram](https://t.me/AnnLomako)
-* [Instagram](https://www.instagram/com/lomannskaya/)
+* [Instagram](https://www.instagram.com/lomannskaya/)
 
 ## Большую часть своего времени я трачу на обучение и далее я бы хотела показать Вам своё расписание: 
 День недели|Предмет|Время урока|
